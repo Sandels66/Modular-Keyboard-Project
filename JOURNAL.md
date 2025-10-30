@@ -6,7 +6,7 @@
   ==================================================================
 -->
 
-## 10/30/2025 - Start! and research! and pain!  
+## 10/30/2025 - Start! and research! and pain! (30/10/2025)  
 
 So, maybe you're wondering how i decided on this. Simple. I Enjoy Pain. also i like jumping into the deep end, buut... minor details.
 
